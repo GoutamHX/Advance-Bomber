@@ -16,7 +16,7 @@ Sms Bombing Telegram Bot 💣
 * And Enjoy Bot
 
 # Bot Link :
-- https://t.me/AdvanceBomberBot
+- CLICK HERE https://t.me/AdvanceBomberBot
 - https://t.me/AdvanceBomberBot
 - 
 # Join Our Telegram Chennal For More Hacking Updates 
